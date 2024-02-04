@@ -11,7 +11,6 @@ Non-Violent Communication by Rosenberg - [https://amzn.to/3pKmN3a](https://amzn.
 Getting to Yes by Fisher - [https://amzn.to/3bex5V0](https://amzn.to/3bex5V0)
 Crucial Conversations Tools for Talking When Stakes Are High (recommended by Nora B) - [https://amzn.to/2Od2H45](https://amzn.to/2Od2H45)
 
-
 ## Presence / Imposter Syndrome
 
 Presence by Amy Cuddy - [https://amzn.to/3K8TouG ](https://amzn.to/3K8TouG )
@@ -21,7 +20,6 @@ Leadership Presence (HBR Emotional Intelligence Series)  - [https://amzn.to/31PW
 
 Good Strategy, Bad Strategy by Richard Rumelt - [https://amzn.to/3b7Bw3V ](https://amzn.to/3b7Bw3V )
 Strategy in Practice by Cliff Bowman - [https://amzn.to/3rT9ajR](https://amzn.to/3rT9ajR)
-
 
 ## Change Management
 
@@ -48,11 +46,13 @@ The Coaching Habit: Say Less, Ask More & Change the Way Your Lead Forever by Sta
 Co-Active Leadership by Kimsey-House - [https://amzn.to/3pSZmF3](https://amzn.to/3pSZmF3)
 Teaching Smart People How to Learn by Argyris - [https://hbr.org/1991/05/teaching-smart-people-how-to-learn](https://hbr.org/1991/05/teaching-smart-people-how-to-learn)
 
-
 ## How other companies are run
 
 No Rules Rules: Netflix and the Culture of Reinvention by Reed Hastings and Erin Myer - [https://amzn.to/2ZGbApa](https://amzn.to/2ZGbApa)
 
+## Organising Teams
+
+Team Topologies: Organizing Business and Technology Teams for Fast Flow by Skelton & Pais - [https://amzn.to/3SsgKQB](https://amzn.to/3SsgKQB)
 
 ## Organising
 
